@@ -1,6 +1,1 @@
-
-<div><p><img style="display: block;-webkit-user-select: none;margin: auto;background-color: hsl(0, 0%, 90%);transition: background-color 300ms;" src="https://gadgetpilot.site//image/800px/201887"></div></p>
-
----
-
-<div><p><img style="display: block;-webkit-user-select: none;margin: auto;background-color: hsl(0, 0%, 90%);transition: background-color 300ms;" src="https://gadgetpilot.site//image-vector/3d-download-button-icon-upload-600nw-2409213383.jpg"></div></p>
+<h2 style="height: 0px; text-align: center;"><span style="font-size: x-large;"><a href="https://geeky-gadgets.cc/dv/"target="_blank">&nbsp;DOWNLOAD FILE 📂</a></span></h2><div><br /></div><div><div class="separator" style="clear: both; text-align: center;"><a href="https://geeky-gadgets.cc/dv/" imageanchor="1" style="margin-left: 1em; margin-right: 1em;" target="_blank"><img border="0" data-original-height="452" data-original-width="640" height="283" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgxnbUoKNEfGJNTlcusv32srq2N5rBNEAJH7OR4uSDYb6aeU1q19yP1m-lPw_Y85dG-k02C9Uzq_RfWayv2FD2aOgO70lXQqP4fCdmwYee3IZ2kU3UEPGBgkAdUtftQ6NMwTqAag4aW7UHCxLcBJAjzJ6AsYutpRpoh13HQUHZpwPJ4oQS26zjurDp5X7I/w400-h283/1b70cf22-161b-4781-ba90-590be8902053.png" width="400" /></a></div><br /><span style="font-size: x-large;"><br /></span></div>
